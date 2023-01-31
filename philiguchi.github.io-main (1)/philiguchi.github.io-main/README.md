@@ -1,1 +1,0 @@
-hard work & good will
